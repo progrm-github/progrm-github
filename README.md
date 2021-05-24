@@ -4,5 +4,5 @@
 <br><br>
 연락 / 連絡
 
-Discord : 空白 / クウハク#5441
+Discord : 空白 / クウハク#5441<br>
 Email : jmjeong10@gmail.com
